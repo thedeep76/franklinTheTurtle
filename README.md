@@ -1,1 +1,1 @@
-Move forward while not geting hit by cars ! have funn !
+Move forward while not getting hit by cars ! have fun !
